@@ -9,3 +9,4 @@ Wait until the current ritual has taken full effect before setting up the magic 
 
 Place two buckets of water at the two designated directions. The size, material, and color of the buckets do not matter.
 For the Supreme Nine-Five Wealth Array, only one bucket of water is required. Attach the "Windfall from Heaven" talisman, written in black or red ink on yellow paper, to the side of the bucket.	
+<img width="1103" height="1257" alt="水法催财 2026 07" src="https://github.com/user-attachments/assets/c03a4aa0-4681-44f6-875d-2d65e5eb695c" />
